@@ -3,7 +3,7 @@ layout: post
 title: A Sure-Fire Way to Improve Your Willpower
 ---
 
-![]({{site.baseurl}}/https://miro.medium.com/max/4800/0*at2jDK6MGl6ldEWe)
+![](https://miro.medium.com/max/4800/0*at2jDK6MGl6ldEWe)
 
 Recently, I had a lot of time off. I was free from outside obligations for the day. I could not figure out how should I spend the day. Thanks to my lack of planning the day before.
 
@@ -36,7 +36,7 @@ How did I stop myself from making an emotional decision?
 I jumped on Google to find out. It turned out to be a productive research session.
 
 ## Default mode network
-![]({{site.baseurl}}/https://miro.medium.com/max/1400/1*MsGnMhNmrtnFmanrFnagtw.jpeg)
+![](https://miro.medium.com/max/1400/1*MsGnMhNmrtnFmanrFnagtw.jpeg)
 
 There is a part of the brain called the default mode network — which is the monkey mind so to say.
 
@@ -61,7 +61,7 @@ Researchers have found meditators to have lesser activity in the default mode ne
 But the puzzle was still not solved.
 
 ## Heart Rate Variability (HRV)
-![]({{site.baseurl}}/https://miro.medium.com/max/1230/1*zeU1Sq7a4HzYZOzGELHisg.png)
+![](https://miro.medium.com/max/1230/1*zeU1Sq7a4HzYZOzGELHisg.png)
 
 HRV measures the consistency of time gaps between two heartbeats over a period of time. For example, if the time between your first and second heartbeat is 1 second and that between your second and third beat is 0.8 seconds, then you have heart rate variability.
 
