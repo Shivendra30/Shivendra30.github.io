@@ -1,12 +1,10 @@
 ---
-published: true
 layout: post
 title: How to Take your Meditation Practice To The Next Level
 ---
----
+
 ![](https://miro.medium.com/max/4800/0*arkiogEeTaOC-Gjy)
 
-# How to Take your Meditation Practice To The Next Level
 
 Meditation is not the easiest habit to take on. I remember it was uncomfortable during the start. 
 And after 6 months, it still requires discipline to stick to it.
