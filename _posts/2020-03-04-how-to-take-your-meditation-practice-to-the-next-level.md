@@ -1,5 +1,8 @@
 ---
-published: false
+published: true
+layout: post
+title: How to Take your Meditation Practice To The Next Level
+---
 ---
 ![](https://miro.medium.com/max/4800/0*arkiogEeTaOC-Gjy)
 
