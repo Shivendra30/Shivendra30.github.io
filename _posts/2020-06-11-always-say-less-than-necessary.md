@@ -73,7 +73,7 @@ That’s what gets the person to continue. If you do that even in a single conve
 
 ---
 ## Self-Control
-> # I cannot trust a man to control others if he cannot control himself — Robert E. Lee
+> ### I cannot trust a man to control others if he cannot control himself — Robert E. Lee
 
 Silence is not a sign of weakness; it’s a sign of strong self-control.
 
@@ -95,7 +95,7 @@ Once the words are out, they cannot be taken back. No matter how much you apolog
 
 ---
 ## What You Say Will Carry More Weight and Influence
-> # Nothing strengthens authority so much as silence― Leonardo da Vinci
+> ### Nothing strengthens authority so much as silence― Leonardo da Vinci
 
 Scarcity creates value. If you otherwise talk less, your words would carry more weight.
 
@@ -107,8 +107,8 @@ Even when you don’t speak, your listeners would automatically try to attach me
 
 ---
 ## You’ll Be Able to Read People
-> # You are most powerful when you are most silent. People never expect silence. They expect words, motion, defense, offense, back and forth. They expect to leap into the fray. They are ready, fists up, words hanging leaping from their mouths. Silence? No
-> # ― Alison McGhee, All Rivers Flow To The Sea
+> ### You are most powerful when you are most silent. People never expect silence. They expect words, motion, defense, offense, back and forth. They expect to leap into the fray. They are ready, fists up, words hanging leaping from their mouths. Silence? No
+> ### ― Alison McGhee, All Rivers Flow To The Sea
 
 Getting to know the person you’re talking to is a necessary art in business, sales, negotiations, and relationships. But you can’t read people if you’re talking all the time.
 
@@ -129,8 +129,8 @@ No matter what emotion you’re feeling, if you’re silent, the damage would be
 
 ---
 ## You’ll Be a Great Listener
-> # Silence makes idiots seem wise even for a minute
-> # ― Carlos Ruiz Zafón, The Angel’s Game
+> ### Silence makes idiots seem wise even for a minute
+> ### ― Carlos Ruiz Zafón, The Angel’s Game
 
 No matter what anyone tells you, listening is important. It’s also a skill that most people are not good at — which gives you leverage if you practice it enough.
 
@@ -150,13 +150,13 @@ Letting the other person speak more will not only make him feel better but also 
 
 ---
 ## You Won’t Sound Stupid
-> # I often regret that I have spoken; never that I have been silent— Publilius Syrus
+> ### I often regret that I have spoken; never that I have been silent— Publilius Syrus
 
 The more you speak the more you put yourself at the risk of saying something stupid. Knowing what not to say is as important as knowing what to say.
 
 ---
 ## You Become Calmer — and Calmness is Soothing
-> # In Silence there is eloquence. Stop weaving and see how the pattern improves ― **Rumi**
+> ### In Silence there is eloquence. Stop weaving and see how the pattern improves ― **Rumi**
 
 When you speak less, there’s a sense of calmness and serenity in your speech. In our day-to-day hectic lives, such calmness feels soothing to us.
 
@@ -164,7 +164,7 @@ People would feel at ease during such a conversation which sets you up for an am
 
 ---
 ## You Cut Out Filler Words
-> # Be silent or let thy words be worth more than silence― Pythagoras
+> ### Be silent or let thy words be worth more than silence― Pythagoras
 
 Filler words are irritating. Especially when a person uses it every time they need to pause.
 
@@ -178,8 +178,8 @@ It’s one of the easiest hacks for better speaking.
 
 ---
 ## Silence is God
-> # In the silence of the heart, God speaks. If you face God in prayer and silence, God will speak to you. Then you will know that you are nothing. It is only when you realize your nothingness, your emptiness, that God can fill you with Himself. Souls of prayer are souls of great silence
-> # ― Mother Teresa, In the Heart of the World: Thoughts, Stories, and Prayers
+> ### In the silence of the heart, God speaks. If you face God in prayer and silence, God will speak to you. Then you will know that you are nothing. It is only when you realize your nothingness, your emptiness, that God can fill you with Himself. Souls of prayer are souls of great silence
+> ### ― Mother Teresa, In the Heart of the World: Thoughts, Stories, and Prayers
 
 Being on the spiritual path, it is important to carve out every possible moment to go inward. Divine experiences don’t happen when you’re restless and busy with useless tasks.
 
@@ -200,9 +200,9 @@ In these deep moments of silence is our opportunity for spiritual growth. That i
 I have to admit, cultivating silence in your life is a tall order. So start as small as you can, but start today.
 
 Next time, when someone passes a sarcastic comment, refrain from replying. When someone gets on your nerve, stay calm and silent. In your next conversation, speak as little as you can — ask more questions and get to know the person.
-> # When a question has no correct answer, there is only one honest response. The gray area between yes and no.
-> # Silence
-> # ― **Dan Brown, The Da Vinci Code**
+> ### When a question has no correct answer, there is only one honest response. The gray area between yes and no.
+> ### Silence
+> ### ― **Dan Brown, The Da Vinci Code**
 
 These small moments of stillness give you a glimpse of the calmness that silence can give you. Once you start to see the benefits, you’ll switch your default mode of operation.
 
