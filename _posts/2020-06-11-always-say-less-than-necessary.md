@@ -51,7 +51,7 @@ It is rare that you see a tool which benefits you in all aspects of your life �
 Here are some benefits you’ll see when you include moments of silence in your life.
 
 ## You Learn Much More When You Shut Up
-> # You can make more friends in two months by becoming interested in other people than you can in two years by trying to get other people interested in you — Dale Carnegie
+> ### You can make more friends in two months by becoming interested in other people than you can in two years by trying to get other people interested in you — Dale Carnegie
 
 If a ‘conversation’ has to happen, one of the people involved will have to speak. Obviously, this is not true in all cases — people can speak as much, if not more, without verbal communication.
 
