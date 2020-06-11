@@ -4,13 +4,9 @@ title: Always Say Less Than Necessary
 published: true
 ---
 
-# Always Say Less Than Necessary
-
-Always Say Less Than Necessary
-
-### Never miss a good chance to shut up
-
 ![](https://miro.medium.com/max/4800/1*mkwyoklhk1wmjdwNy6tfXw.jpeg)
+
+#### Never miss a good chance to shut up
 
 During the years 1969–73, Winston Lord was a man with huge responsibilities.
 
