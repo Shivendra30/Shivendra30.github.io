@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title: Always Say Less Than Necessary
