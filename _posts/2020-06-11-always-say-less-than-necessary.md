@@ -71,6 +71,7 @@ At this point, you need to think of ways to dig deeper. That’s where you learn
 
 That’s what gets the person to continue. If you do that even in a single conversation, you’ll see the benefits instantly.
 
+---
 ## Self-Control
 > # I cannot trust a man to control others if he cannot control himself — Robert E. Lee
 
@@ -92,6 +93,7 @@ Whatever he says after that would stop making sense to you — because your 
 
 Once the words are out, they cannot be taken back. No matter how much you apologize and how you didn’t mean to say it. Control yourself and use your words judiciously.
 
+---
 ## What You Say Will Carry More Weight and Influence
 > # Nothing strengthens authority so much as silence― Leonardo da Vinci
 
@@ -103,6 +105,7 @@ Your silence would be confusing for people. They’ll never be able to predict w
 
 Even when you don’t speak, your listeners would automatically try to attach meaning to it. They’ll keep wondering about what you feel.
 
+---
 ## You’ll Be Able to Read People
 > # You are most powerful when you are most silent. People never expect silence. They expect words, motion, defense, offense, back and forth. They expect to leap into the fray. They are ready, fists up, words hanging leaping from their mouths. Silence? No
 > # ― Alison McGhee, All Rivers Flow To The Sea
@@ -124,6 +127,7 @@ If you want to study human nature, you need to be a silent observer. By understa
 No matter what emotion you’re feeling, if you’re silent, the damage would be minimal. Yes, your expression and body language matter but most people do not notice that. They go only by what you say. Resist the urge to lash out at the moment because the temporary satisfaction that you get will be outweighed by the price you pay.
 > It is even more damaging for a minister to say foolish things than to do them — Cardinal de Retz
 
+---
 ## You’ll Be a Great Listener
 > # Silence makes idiots seem wise even for a minute
 > # ― Carlos Ruiz Zafón, The Angel’s Game
@@ -144,11 +148,13 @@ In both instances, Dale didn’t say much. He just got the other person talking.
 
 Letting the other person speak more will not only make him feel better but also free you from the constant need of speaking.
 
+---
 ## You Won’t Sound Stupid
 > # I often regret that I have spoken; never that I have been silent— Publilius Syrus
 
 The more you speak the more you put yourself at the risk of saying something stupid. Knowing what not to say is as important as knowing what to say.
 
+---
 ## You Become Calmer — and Calmness is Soothing
 > # In Silence there is eloquence. Stop weaving and see how the pattern improves ― **Rumi**
 
@@ -156,6 +162,7 @@ When you speak less, there’s a sense of calmness and serenity in your speech. 
 
 People would feel at ease during such a conversation which sets you up for an amazing time together.
 
+---
 ## You Cut Out Filler Words
 > # Be silent or let thy words be worth more than silence― Pythagoras
 
@@ -169,6 +176,7 @@ The mind only needs a few moments to get up to speed.
 
 It’s one of the easiest hacks for better speaking.
 
+---
 ## Silence is God
 > # In the silence of the heart, God speaks. If you face God in prayer and silence, God will speak to you. Then you will know that you are nothing. It is only when you realize your nothingness, your emptiness, that God can fill you with Himself. Souls of prayer are souls of great silence
 > # ― Mother Teresa, In the Heart of the World: Thoughts, Stories, and Prayers
