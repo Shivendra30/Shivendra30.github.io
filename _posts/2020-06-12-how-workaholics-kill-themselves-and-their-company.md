@@ -135,4 +135,4 @@ If you know someone like this, share these ideas with them.
 
 And if you see them at the workplace, run!
 
-[**Join the early bird list](https://bit.ly/2X15HlT)** for my new book, Bend Reality: Timeless Tools to Shift the Illusion of Reality, Reinvent Yourself, and Master Life :)
+**[Join the early bird list](https://bit.ly/2X15HlT)** for my new book, Bend Reality: Timeless Tools to Shift the Illusion of Reality, Reinvent Yourself, and Master Life :)
