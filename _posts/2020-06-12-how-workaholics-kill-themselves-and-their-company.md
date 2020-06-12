@@ -7,7 +7,7 @@ title: How Workaholics Kill Themselves and Their Company
 
 Workaholics are costing America trillions of dollars
 
-![Photo by [Kyle Hanson](https://unsplash.com/@kyledarrenhanson?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)](https://cdn-images-1.medium.com/max/8064/0*KoGhklF_89HKsmcP)*Photo by [Kyle Hanson](https://unsplash.com/@kyledarrenhanson?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)*
+![Photo by [Kyle Hanson](https://unsplash.com/@kyledarrenhanson?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)](https://cdn-images-1.medium.com/max/8064/0*KoGhklF_89HKsmcP)*<sub><sup>Photo by [Kyle Hanson](https://unsplash.com/@kyledarrenhanson?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)</sup></sub>*
 
 Do you have dreams about your coworkers and managers?
 
