@@ -1,6 +1,6 @@
 ---
 layout: post
-published:true
+published: true
 title: An Easy, Permanent Fix to Never Run Out of Writing Ideas
 ---
 
