@@ -1,6 +1,6 @@
 ---
 layout: post
-published:true
+published: true
 title: 13 Painfully Rewarding Ways To Transcend Your Ego
 ---
 
