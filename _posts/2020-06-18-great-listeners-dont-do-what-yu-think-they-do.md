@@ -1,9 +1,9 @@
-
 ---
 layout: post
 published:true
 title:  Great Listeners Don’t Do What You Think They Do
 ---
+
 ![](https://miro.medium.com/max/4800/1*98GvpV7wWrHyYiYQFaAhSg.jpeg)
 
 ### No more fake laughs and confused nods
