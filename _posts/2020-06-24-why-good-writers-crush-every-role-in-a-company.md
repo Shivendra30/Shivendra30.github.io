@@ -1,6 +1,6 @@
 ---
 layout: post
-published:true
+published: true
 title: Why Good Writers Crush Every Role in a Company
 ---
 
