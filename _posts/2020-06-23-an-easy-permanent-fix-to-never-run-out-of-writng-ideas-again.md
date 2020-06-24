@@ -4,10 +4,11 @@ published: true
 title: An Easy, Permanent Fix to Never Run Out of Writing Ideas
 ---
 
-
-How to become a blogging machine by getting out of your own way
-
 ![[ryangarcia.ca](http://ryangarcia.ca/)](https://cdn-images-1.medium.com/max/2000/1*FkaPUTzdMxhE5UHSfhkY-g.jpeg)*[ryangarcia.ca](http://ryangarcia.ca/)*
+
+> ### How to become a blogging machine by getting out of your own way
+
+
 
 Do you fear that you’ll run out of ideas to write about? I know I do. But I don't want to admit it.
 
