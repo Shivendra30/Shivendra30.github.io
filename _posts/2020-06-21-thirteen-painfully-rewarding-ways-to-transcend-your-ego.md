@@ -1,11 +1,10 @@
 ---
 layout: post
 published: true
-title: 13 Painfully Rewarding Ways To Transcend Your Ego
+title: 13 Painfully Rewarding Ways To Transcend Your Ego (Your first job is to rise above the ego)
 ---
 
 
-Your first job is to rise above the ego
 
 ![jeremydanielphoto.com](https://cdn-images-1.medium.com/max/3198/1*4j7LjJYeK8VKq-URQwnjOA.jpeg)*jeremydanielphoto.com*
 
