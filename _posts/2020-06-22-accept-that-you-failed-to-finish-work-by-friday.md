@@ -4,9 +4,9 @@ published: true
 title: Accept That You Failed to Finish Work by Friday
 ---
 
-If you’re working weekends, there’s something wrong
-
 ![Photo by [Andrea Piacquadio](https://www.pexels.com/@olly?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/photo-of-yawning-man-with-his-hands-up-and-eyes-closed-sitting-at-a-table-with-his-laptop-3760538/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)](https://cdn-images-1.medium.com/max/11772/1*RVBAL9homnOER2kZ8g4dvg.jpeg)*Photo by [Andrea Piacquadio](https://www.pexels.com/@olly?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/photo-of-yawning-man-with-his-hands-up-and-eyes-closed-sitting-at-a-table-with-his-laptop-3760538/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)*
+>### If you’re working weekends, there’s something wrong
+
 
 It’s Monday morning. Your team decides to complete a new project by Friday.
 
