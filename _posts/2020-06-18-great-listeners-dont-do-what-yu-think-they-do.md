@@ -1,6 +1,6 @@
 ---
 layout: post
-published:true
+published: true
 title:  Great Listeners Don’t Do What You Think They Do
 ---
 
