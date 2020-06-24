@@ -1,6 +1,6 @@
 ---
 layout: post
-published:true
+published: true
 title: Accept That You Failed to Finish Work by Friday
 ---
 
