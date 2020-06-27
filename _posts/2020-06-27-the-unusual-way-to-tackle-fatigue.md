@@ -4,9 +4,9 @@ layout: post
 title: The Unusual Way To Tackle Fatigue
 ---
 
-The key to fix it is in your nervous system
-
 ![Photo by [Keenan Constance](https://www.pexels.com/@keenan-constance-545154?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/woman-sitting-beside-table-2866022/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)](https://cdn-images-1.medium.com/max/3660/1*tVaSvPIekeXDb-k74LpzUQ.jpeg)*Photo by [Keenan Constance](https://www.pexels.com/@keenan-constance-545154?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/woman-sitting-beside-table-2866022/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)*
+
+The key to fix it is in your nervous system
 
 What’s the fastest way to become a zombie? Sleep deprivation. If you regularly feel like a zombie, then it has a lot to do with your sleep.
 
