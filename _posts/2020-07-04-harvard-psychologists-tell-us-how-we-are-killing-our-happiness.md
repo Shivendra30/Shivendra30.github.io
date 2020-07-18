@@ -33,7 +33,7 @@ Here are a few answers:
 
 ![](https://cdn-images-1.medium.com/max/2000/1*WlWid_CKW4S1iyaTXY3vvA.jpeg)
 
-![[Source](https://images.techhive.com/images/article/2016/06/the-list-distracting-smoking-100667787-large.idge.jpg)](https://cdn-images-1.medium.com/max/2000/1*2v4g7ix56EgMX5fCEh1_3A.jpeg)*[Source](https://images.techhive.com/images/article/2016/06/the-list-distracting-smoking-100667787-large.idge.jpg)*
+![](https://cdn-images-1.medium.com/max/2000/1*2v4g7ix56EgMX5fCEh1_3A.jpeg)
 
 Newspapers, cigarettes, television, radio, and many more. You get the point.
 
