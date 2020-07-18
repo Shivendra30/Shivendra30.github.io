@@ -24,7 +24,7 @@ Ever wonder why successful people often seem to get ‘lucky’? It’s the resu
 > “If you look at the way successful founders have had their ideas, it’s generally the result of some external stimulus hitting a prepared mind. Bill Gates and Paul Allen hear about the Altair and think “I bet we could write a Basic interpreter for it.” Drew Houston realizes he’s forgotten his USB stick and thinks “I really need to make my files live online.” Lots of people heard about the Altair. Lots forgot USB sticks. The reason those stimuli caused those founders to start companies was that their experiences had prepared them to notice the opportunities they represented .”— Paul Graham, [How to Get Startup Ideas](http://paulgraham.com/startupideas.html)
 
 ## This Is Our Biggest Hurdle
-> # As entrepreneurs, we often lie to ourselves. Some more than others — Mark Cuban
+> ### As entrepreneurs, we often lie to ourselves. Some more than others — Mark Cuban
 
 We like to believe that there’s a shorter path to success. We look up to the masters of our fields and somehow convince ourselves that they had something we don’t. Or someone came and helped them along the way.
 
