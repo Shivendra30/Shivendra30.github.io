@@ -1,9 +1,8 @@
 ---
 layout: post
-title:  5 Simple Ways To Do More Without Killing Yourself
+title: 5 Simple Ways To Do More Without Killing Yourself
 published: true
 ---
-
 
 ![Photo by [NEOSiAM 2020](https://www.pexels.com/@neo8iam?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/person-s-hands-covered-with-blood-673862/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)](https://cdn-images-1.medium.com/max/4096/1*ALH2a6eh6-mxYxqcvRFVkQ.jpeg)*Photo by [NEOSiAM 2020](https://www.pexels.com/@neo8iam?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/person-s-hands-covered-with-blood-673862/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)*
 How to manage the chaos called life
