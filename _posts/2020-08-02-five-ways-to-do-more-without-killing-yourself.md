@@ -23,7 +23,7 @@ The following tips have helped me manage the chaos in my life, and if applied th
 
 ## Take Moments Throughout the Day to Center Yourself
 
-There’s a new trend that has taken the world by a storm — micro mindfulness. It’s one of the best practices to avoid overstimulation and draw your attention back to the present moment.
+There’s a new trend that has taken the world by a storm — micro mindfulness. It’s one of the best practices to avoid overstimulation and draw your attention back to the present moment. 
 
 It’s mindfulness for the A-type, always-on people who need to seriously relax. The trick is simple — take short breaks 2–3 times a day to center yourself, calm down, and get a new perspective on things.
 
