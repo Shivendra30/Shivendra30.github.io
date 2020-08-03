@@ -5,7 +5,7 @@ published: true
 ---
 
 ![Photo by [cottonbro](https://www.pexels.com/@cottonbro?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/person-in-brown-robe-lying-on-brown-leather-couch-4114919/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)](https://cdn-images-1.medium.com/max/12260/1*nPLB_LebowLy101Wfombyw.jpeg)*Photo by [cottonbro](https://www.pexels.com/@cottonbro?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/person-in-brown-robe-lying-on-brown-leather-couch-4114919/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)*
-> # “Life swings like a pendulum backward and forward between pain and boredom.”― [Arthur Schopenhauer](https://www.goodreads.com/quotes/671382-life-swings-like-a-pendulum-backward-and-forward-between-pain)
+> ### “Life swings like a pendulum backward and forward between pain and boredom.”― [Arthur Schopenhauer](https://www.goodreads.com/quotes/671382-life-swings-like-a-pendulum-backward-and-forward-between-pain)
 
 Hint: It’s not failure or obstacles.
 
