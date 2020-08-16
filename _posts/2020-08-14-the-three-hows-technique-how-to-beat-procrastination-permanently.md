@@ -1,6 +1,6 @@
 ---
-published: true
 layout: post
+published: true
 title: The Three Hows Technique: How To Beat Procrastination Permanently
 ---
 
