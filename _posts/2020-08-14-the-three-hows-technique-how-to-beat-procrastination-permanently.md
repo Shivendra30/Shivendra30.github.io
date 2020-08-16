@@ -1,7 +1,7 @@
 ---
 layout: post
 published: true
-title: The Three Hows Technique: How To Beat Procrastination Permanently
+title: The Three Hows Technique - How To Beat Procrastination Permanently
 ---
 
 ![Photo by [Morning Brew](https://unsplash.com/@morningbrew?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)](https://cdn-images-1.medium.com/max/6000/0*n_zywWeNp0wqwUng)*Photo by [Morning Brew](https://unsplash.com/@morningbrew?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)*
