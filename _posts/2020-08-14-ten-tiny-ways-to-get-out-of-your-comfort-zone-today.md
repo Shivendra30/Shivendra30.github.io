@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-title: 10 Tiny Ways To Get Out Of Your Comfort Zone Todayx
+title: 10 Tiny Ways To Get Out Of Your Comfort Zone Today
 ---
 
 ![Image by [Gerd Altmann](https://pixabay.com/users/geralt-9301/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=3071110) from [Pixabay](https://pixabay.com/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=3071110)](https://cdn-images-1.medium.com/max/3840/1*jI5Eu8oGAfUMIfqRsaIEyQ.jpeg)*Image by [Gerd Altmann](https://pixabay.com/users/geralt-9301/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=3071110) from [Pixabay](https://pixabay.com/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=3071110)*
