@@ -64,7 +64,7 @@ Whether you’re gossiping on IM, Social Media, or in person, it is the worst wa
 The amount of junk that you fill your brain with is just not worth it. Eventually, your brain becomes so cluttered that there’s no room for things that matter until you free up space.
 
 ## Focusing the Searchlights in the Wrong Direction
-> # “Every time you point a finger at someone— there are three remaining fingers pointing right back at you.” — Anonymous
+> “Every time you point a finger at someone— there are three remaining fingers pointing right back at you.” — Anonymous
 
 I don’t know where this quote comes from, but I’ve heard it a lot growing up.
 
