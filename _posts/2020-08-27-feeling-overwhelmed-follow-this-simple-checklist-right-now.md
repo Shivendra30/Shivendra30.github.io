@@ -1,7 +1,7 @@
 ---
 layout: post
 published: true
-title:Feeling Overwhelmed? Follow This Simple Checklist Right Now
+title: Feeling Overwhelmed? Follow This Simple Checklist Right Now
 ----
 ![](https://miro.medium.com/max/3840/1*qdc-zaPjKiOyeXNpIPkp4w.jpeg)
 
