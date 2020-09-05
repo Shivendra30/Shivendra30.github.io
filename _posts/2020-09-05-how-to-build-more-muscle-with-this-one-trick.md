@@ -31,9 +31,9 @@ Let’s see how.
 
 Dorian Yates reached the epitome of success in bodybuilding. He won Mr. Olympia six consecutive times from 1992 to 1997 and is remembered with legendary bodybuilders like Ronnie Coleman, Arnold, and Phil Health.
 
-What’s fascinating about Dorian Yates is this:
+What’s fascinating about Dorian Yates is that he says this:
 
-<iframe src="https://medium.com/media/299e0244c69f57bcbfd818e48cb7dfa8" frameborder=0></iframe>
+> ### 45 minutes in the gym is all you need, the go home to rest, and grow.
 
 Dorian trained for 45 minutes, 4 times a week for Mr. Olympia. This routine, as Ben Pakulski [says](https://londonreal.tv/ben-pakulski-the-bodybuilding-yogi-how-to-unify-the-mind-body/), was unheard of. While a lot of folks trained every day, and some twice a day, Dorian believed in quality workouts and rest.
 
@@ -77,10 +77,6 @@ Stupid enough, I started doing weighted pullups, thinking that adding more weigh
 Then I bought a pull-up bar and fixed it between a door. This time, I did not have weights to add so I started with my bodyweight. Again, I was back to lousy pullups which were not helping me grow.
 
 Here’s what I did differently — to make it more difficult, I started going slower. I went all the way up and down. I didn’t use my legs to gain momentum.
-
-![](https://cdn-images-1.medium.com/max/2000/1*zx3sghkTOlaWBdA4ckmZYg.gif)
-
-![[Left](https://i.imgur.com/5HP8Cum.gif) (❌)| [Right](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.garmaonhealth.com%2Fwp-content%2Fuploads%2F2017%2F01%2Fchinup.gif&imgrefurl=https%3A%2F%2Fwww.garmaonhealth.com%2Fget-lean-and-muscular-move-part-2%2Fchinup%2F&tbnid=cRTKhwYfQl3-0M&vet=12ahUKEwjfptjQ4r_rAhXXKLcAHe1bBd4QMygIegUIARCFAg..i&docid=31nT7jVgPfUFIM&w=1080&h=1080&q=chin%20up%20gif&safe=active&client=safari&ved=2ahUKEwjfptjQ4r_rAhXXKLcAHe1bBd4QMygIegUIARCFAg) (✅)](https://cdn-images-1.medium.com/max/2160/1*TmqfLpQS8pme6FhbswzCfQ.gif)*[Left](https://i.imgur.com/5HP8Cum.gif) (❌)| [Right](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.garmaonhealth.com%2Fwp-content%2Fuploads%2F2017%2F01%2Fchinup.gif&imgrefurl=https%3A%2F%2Fwww.garmaonhealth.com%2Fget-lean-and-muscular-move-part-2%2Fchinup%2F&tbnid=cRTKhwYfQl3-0M&vet=12ahUKEwjfptjQ4r_rAhXXKLcAHe1bBd4QMygIegUIARCFAg..i&docid=31nT7jVgPfUFIM&w=1080&h=1080&q=chin%20up%20gif&safe=active&client=safari&ved=2ahUKEwjfptjQ4r_rAhXXKLcAHe1bBd4QMygIegUIARCFAg) (✅)*
 
 The results? My arms grew more in 2 weeks than in 3 months. That is the power of mindfulness.
 
