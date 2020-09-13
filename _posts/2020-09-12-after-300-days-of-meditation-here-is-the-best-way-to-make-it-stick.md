@@ -1,7 +1,7 @@
 ---
 layout: post
 published: true
-title:After 300 Days of Meditation, Here's the Best Way to Make It Stick
+title: After 300 Days of Meditation, Here's the Best Way to Make It Stick
 ---
 
 
