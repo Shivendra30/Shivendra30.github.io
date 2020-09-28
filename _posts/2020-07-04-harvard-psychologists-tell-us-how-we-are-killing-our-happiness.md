@@ -97,4 +97,5 @@ There’s one thing I’ll say — start today. Start small. Start with 2 minute
 
 The simple habit will go a long way — since it’s the only path to happiness.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
