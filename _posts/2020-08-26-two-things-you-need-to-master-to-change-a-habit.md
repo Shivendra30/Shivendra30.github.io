@@ -158,4 +158,4 @@ Instead of running behind hundreds of complicated frameworks, why not keep thing
 After all, this is how you’ll learn more and come out victorious on the other side.
 
 -------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
