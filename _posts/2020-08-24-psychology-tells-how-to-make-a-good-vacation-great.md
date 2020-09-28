@@ -128,4 +128,4 @@ Pick a hobby you like, get good at it, and get as far away from work as possible
 This isn’t only for people who have the time to take long vacations. The principles work whether it’s a weekend or a world tour. Get started today to reap the rewards tomorrow.
 
 --------------------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
