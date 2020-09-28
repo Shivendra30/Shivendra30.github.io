@@ -65,7 +65,7 @@ There are tons of different ways you can include deep work and deliberate practi
 
 The good thing is if you really work deeply, you’ll get more done in less time. This gives you time to relax and recharge batteries. Compare this with shallow workers or bliss junkies who “work” all day, drain themselves out, and have nothing to show for it.
 
-Do less to do more. Do it with the utmost focus. And master your craft. There are no tricks.s
+Do less to do more. Do it with the utmost focus. And master your craft. There are no tricks.
 
 -----------
 *Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
