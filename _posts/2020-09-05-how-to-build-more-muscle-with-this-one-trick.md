@@ -140,4 +140,4 @@ That being said, try it for yourself and see what happens. I’m sure you’ll i
 Fitness, as I’ve learned over the past few years, is a lot about experimenting. That is how you uncover hidden techniques to skyrocket your progress.
 
 ------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
