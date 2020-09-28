@@ -116,7 +116,7 @@ That being said, here are two things I do to ensure I don’t quit and remind my
 
 ### Focus on systems rather than goals.
 
-Goals are just checkpoints to look at occasionally instead of being obsessed over. I try not to look at my stats and earnings on Medium. I try to not attach myself to my [book](https://www.amzn.com/dp/B089PQVQ9Y/) sales. I don’t check the number of [subscribers](https://bit.ly/emailcoursepd) I have every day.
+Goals are just checkpoints to look at occasionally instead of being obsessed over. I try not to look at my stats and earnings on Medium. I try to not attach myself to my [book](https://www.amzn.com/dp/B089PQVQ9Y/) sales. I don’t check the number of [subscribers](https://bit.ly/maptcourse) I have every day.
 
 I focus on writing. I write every day. And that’s it.
 
@@ -133,4 +133,4 @@ But there’s something more. With every month you continue writing, the odds of
 Right now, pick a number and go with it. It will redefine your life for the better.
 
 ----------------------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
