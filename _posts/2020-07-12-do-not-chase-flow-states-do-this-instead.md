@@ -67,4 +67,5 @@ The good thing is if you really work deeply, you’ll get more done in less time
 
 Do less to do more. Do it with the utmost focus. And master your craft. There are no tricks.s
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+-----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
