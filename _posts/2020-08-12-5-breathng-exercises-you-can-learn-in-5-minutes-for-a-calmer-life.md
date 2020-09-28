@@ -132,4 +132,4 @@ So pick what you like and do it right now.
 We all have five minutes. And if you don’t have five minutes for yourself, you don’t have a life.
 
 -------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
