@@ -221,4 +221,4 @@ When you encounter such setbacks, say nothing. Don’t try to baptize them into 
 * Finally, you’ll meet people who’ll try to convince you with conventional, 6x per week programs. Listen to them at your own peril.
 
 ----------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
