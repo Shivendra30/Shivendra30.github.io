@@ -156,4 +156,4 @@ And there you go. You understand the mechanics behind it. You’ve made the game
 You’re all set to meditate for a week. The only question is, will you?
 
 --------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
