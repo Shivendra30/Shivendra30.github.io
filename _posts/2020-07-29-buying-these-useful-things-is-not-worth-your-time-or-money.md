@@ -157,4 +157,4 @@ I spent most of my childhood riding in a car. And for that reason, I’ve not di
 It depends on a lot of factors and anyone who tells you decisions like buying a car or a home are black and white, is lying. The best thing is to run the numbers and be honest with yourself about your needs and financial situation.
 
 ---
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
