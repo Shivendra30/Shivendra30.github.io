@@ -77,4 +77,5 @@ Yet we are so confident in our views that we can kill other people to prove our 
 
 Realizing that our reality is completely different from how others see it is the first step to resolve conflict and enlarge your perspective. Until one day, you start to perceive things beyond your tiny reality
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+--------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
