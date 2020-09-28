@@ -84,4 +84,5 @@ Don’t make the same mistake as others. Don’t only dismiss this practice as a
 
 When done right, it adds an irreplaceable sense of urgency to get things done and to do things you’re otherwise waiting on.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+-------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
