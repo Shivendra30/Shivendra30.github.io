@@ -143,3 +143,6 @@ Meditation helps to silence your inner critic aka the default mode network. This
 HRV is a direct indicator of the strength of your willpower. High HRV helps you to adapt to all situations so that you can dance in the storm of everyday life.
 
 The main ways to improve HRV are meditation, HRV training (biofeedback), and physical exercise. Additionally, ensure optimal sleep quality, chill with friends and avoid stress in your system!
+
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
