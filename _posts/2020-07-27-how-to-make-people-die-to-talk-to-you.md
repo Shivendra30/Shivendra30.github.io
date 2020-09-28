@@ -107,4 +107,5 @@ In your next conversation, try to speak softer than usual and see what happens. 
 
 At the risk of sounding grandiose, you can change the world, one conversation at a time.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
