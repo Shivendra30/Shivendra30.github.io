@@ -155,4 +155,4 @@ To summarize, here are the five ways you can bring back stillness in your lives:
 For more ideas check out Ryan’s [book](https://www.amazon.com/Stillness-Key-Ryan-Holiday/dp/0525538585/). It’s full of anecdotes for the points I mentioned as well as other esoteric topics you wouldn’t expect to read!
 
 -------------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
