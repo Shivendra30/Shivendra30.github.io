@@ -124,4 +124,4 @@ So get on with the practice. Take out a notebook and wrestle with your mind. Don
 What matters is you take action. And there’s no other time to start than now.
 
 ------------------------ 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
