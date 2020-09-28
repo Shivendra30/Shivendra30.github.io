@@ -173,4 +173,4 @@ Need to message a friend? Want to check the latest episode of the Tim Ferris sho
 
 ***References**: Cheers to Ryan Holiday for a lot of inspiring ideas in his book Stillness is The Key (like silence), which I humbly apply in different areas of my life as they suit me.*
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
