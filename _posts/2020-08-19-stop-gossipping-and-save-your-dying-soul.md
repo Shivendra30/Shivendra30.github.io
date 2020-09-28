@@ -111,4 +111,4 @@ Shiv Khera in his book, [You Can Win](https://www.amazon.com/You-Can-Win-step-ac
 Protect your attention and your mind. If you don’t, the world will suck up your energy. Take the control back in your hands today.
 
 -----------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
