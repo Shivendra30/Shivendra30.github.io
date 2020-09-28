@@ -163,4 +163,4 @@ No one said it’s going to be easy. For most people, there’s comfort in indul
 Don’t be like the majority. Be among the few who are willing to step up and transform themselves.
 
 -----------------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
