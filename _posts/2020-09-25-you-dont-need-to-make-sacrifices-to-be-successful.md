@@ -102,4 +102,4 @@ Start making higher choices in every area of your life. Once you taste real happ
 That is when work becomes fun, not an endless barrage of sacrifices.
 
 ---------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
