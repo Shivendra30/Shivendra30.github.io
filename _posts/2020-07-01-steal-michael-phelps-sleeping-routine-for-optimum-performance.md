@@ -76,4 +76,5 @@ See the magic of relaxation unfold in your life.
 
 * The story of Phelps was taken from “[*The Power of Habit](https://charlesduhigg.com/the-power-of-habit/)”*, by Charles Duhigg
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
