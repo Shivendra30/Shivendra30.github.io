@@ -113,4 +113,5 @@ Don’t be dogmatic about your methods, try them to see if they work. And if the
 
 I showed you what worked for me and what didn’t. Now, it’s your turn. Let me know what works for you down in the comments!
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+-------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
