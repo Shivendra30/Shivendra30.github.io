@@ -79,4 +79,5 @@ The younger you are the better it is. Get started now and don’t chase the fals
 
 This is the only thing you need. Don’t be deluded by shortcuts and tricks. Mastery takes time, devotion, and effort.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+-------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
