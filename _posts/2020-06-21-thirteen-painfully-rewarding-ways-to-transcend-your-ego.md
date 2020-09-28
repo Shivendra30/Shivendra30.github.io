@@ -85,4 +85,5 @@ There is a higher self in all of us. That’s what left when the ego steps out. 
 
 Realize the importance of ego transcendence. If you don’t realize it right now, take one of these points and implement it in your life. You’ll be amazed at the results.
 
-***Liked what you read? Check out my [new book on Bending Reality](https://www.amzn.com/B089PQVQ9Y) :)***
+-----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
