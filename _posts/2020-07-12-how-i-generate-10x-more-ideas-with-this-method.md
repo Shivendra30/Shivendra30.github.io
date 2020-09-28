@@ -75,4 +75,5 @@ Think about what one brilliant insight can do for your career, your business, yo
 
 It can do some serious damage. And eventually, the magic will happen
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
