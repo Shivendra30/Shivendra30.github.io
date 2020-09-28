@@ -157,4 +157,4 @@ At this point, I don’t know why, but I can only think of this:
 >  It doesn’t even matter”: [In the End](https://soundcloud.com/sgwd/linkinpark-in-the-end), Linkin Park
 
 ---------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
