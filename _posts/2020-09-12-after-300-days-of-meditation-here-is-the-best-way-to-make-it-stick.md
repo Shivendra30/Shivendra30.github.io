@@ -171,4 +171,4 @@ To sum up, here are the actions you need to take:
 And if you stumble along the way, I’m here to help you — hit me up on [LinkedIn](https://www.linkedin.com/in/shivendra-misra-580882122/).
 
 --------------------------------------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
