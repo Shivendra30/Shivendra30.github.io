@@ -62,4 +62,4 @@ I hope you enjoyed reading the article and found it valuable. If you have any fe
 
 ![](https://cdn-images-1.medium.com/max/2000/1*d77wD5oxknTJronQ1UTdQQ.gif)
 
-👆🏻[**You can also join my email list to stay in touch :)](https://aw16e957.aweb.page/p/7f2d9a26-a3cb-4ecb-a158-7932618aca06)**
+👆🏻[**You can also join my email list to stay in touch :)](http://bit.ly/maptcourse)**
