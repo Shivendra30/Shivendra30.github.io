@@ -101,4 +101,5 @@ The whole life we’re trapped in “I”. “I” did this. “I” worked real
 
 It doesn’t mean life becomes easy. It means you become powerful. Acknowledge that there’s something bigger at play here. Bigger than all of us. It’s the root of deep peace.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
