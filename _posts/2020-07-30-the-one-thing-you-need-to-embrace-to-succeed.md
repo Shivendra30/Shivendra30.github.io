@@ -122,4 +122,5 @@ So the takeaway is simple — on a long-term horizon (let’s say five to ten ye
 
 With this in mind, you’re prepared to face the greatest obstacle on your path. It’s time to commit, execute, and manifest the future you want.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+--------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
