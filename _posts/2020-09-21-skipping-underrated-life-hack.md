@@ -149,4 +149,4 @@ Fourth, use an app to track your habits for the first week or month until the sy
 That’s all you need to start drinking enough water and make use of the most underrated life hack there is.
 
 -----------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
