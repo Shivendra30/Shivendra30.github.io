@@ -140,4 +140,5 @@ If you ask them to brainstorm, you’ll get a lot of ideas.
 They’ll not all be good. But more often than not, you’ll find what you’re looking for.
 > ### Writing is making a comeback all over our society… Writing is today’s currency for good ideas — Jason Fried, Rework
 
-[**Like what you read? Checkout my new book on bending reality :)**](https://www.amzn.com/B089PQVQ9Y)
+--------------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
