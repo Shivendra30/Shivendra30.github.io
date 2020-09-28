@@ -107,4 +107,5 @@ I don’t want one-off tricks, I want something to fix the problem for life.
 
 Implementing these 2 things will ensure that you never run out of gas. Even in your lowest moments, you’ll have things to write about
 
-***Liked what you read? [Check out my new book on Bending Reality](https://www.amazon.com/Bend-Reality-Timeless-Illusion-Reinvent-ebook/dp/B089PQVQ9Y/ref=sr_1_1?crid=2WRCJR9ITBARJ&dchild=1&keywords=bend+reality&qid=1592277351&sprefix=Bend+relity%2Caps%2C403&sr=8-1)***
+------------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
