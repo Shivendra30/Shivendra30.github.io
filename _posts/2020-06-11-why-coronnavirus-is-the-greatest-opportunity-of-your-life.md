@@ -234,3 +234,6 @@ Write down 5 things that you have been putting off for later. Good habits to bui
 Once you have a list, start working on them one at a time. There’s still time to take advantage of the lockdown *if* you start now.
 
 Post your list in the comments to inspire others. Let’s make the best of this opportunity!
+
+----------------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
