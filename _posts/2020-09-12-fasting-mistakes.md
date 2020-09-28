@@ -136,4 +136,4 @@ In the end, fasting should feel like a slight challenge but not an insurmountabl
 *Please don’t consider this as medical advice. Consult a doctor before making major diet.*
 
 --------------------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
