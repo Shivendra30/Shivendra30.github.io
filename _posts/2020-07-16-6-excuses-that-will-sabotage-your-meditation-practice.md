@@ -117,4 +117,5 @@ If you only meditate for 10 minutes in the morning and spend your whole day dist
 
 1. It goes on throughout the day
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
