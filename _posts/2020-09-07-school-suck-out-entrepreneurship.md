@@ -153,4 +153,4 @@ If you went for a corporate job when your passion lied somewhere else, start a s
 The best time to start was yesterday. The second-best time is now.
 
 -----------------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
