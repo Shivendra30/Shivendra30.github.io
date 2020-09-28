@@ -72,4 +72,5 @@ It worked like magic. Not only did I connect with more writers at my level, but 
 
 I maintain a healthy balance between the two. I comment on viral posts (before they go viral). And I also comment on posts by writers who don’t have a massive following. The former gives me extra exposure and the latter gives me meaningful conversations.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
