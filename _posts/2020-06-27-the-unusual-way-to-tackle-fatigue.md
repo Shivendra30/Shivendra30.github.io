@@ -97,4 +97,5 @@ Fatigue is not your default state. Never accept fatigue in your mind and you’l
 
 Most people crumble and fall in the face of fatigue — it’s your time to rise and beat it down.
 
-***Liked what you read? [Check out my new book on Bending Reality](https://www.amazon.com/Bend-Reality-Timeless-Illusion-Reinvent-ebook/dp/B089PQVQ9Y/ref=sr_1_1?crid=2WRCJR9ITBARJ&dchild=1&keywords=bend+reality&qid=1592277351&sprefix=Bend+relity%2Caps%2C403&sr=8-1)***
+--------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
