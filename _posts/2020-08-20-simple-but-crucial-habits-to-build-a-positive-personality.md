@@ -157,5 +157,4 @@ Pick one of these qualities that you relate to and need the most:
 * Speak softer
 
 ------------- 
-
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
