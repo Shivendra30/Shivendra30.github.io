@@ -132,5 +132,5 @@ All of these things help them rejuvenate and come back to work with a smile.
 
 Start establishing these boundaries today. Your future self and your team will thank you for this.
 
-
-[**Like what you read? Checkout my new book on bending reality :)**](https://www.amzn.com/B089PQVQ9Y)
+-------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
