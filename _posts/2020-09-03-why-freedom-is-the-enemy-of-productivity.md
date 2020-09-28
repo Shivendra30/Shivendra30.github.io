@@ -121,4 +121,4 @@ Be inspired by one of the people I mentioned or do it yourself. But build a rout
 It doesn’t have to be fancy. Waking up, brushing your teeth, and walking for ten minutes is also a routine. Start small. Start now.
 
 --------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
