@@ -81,4 +81,5 @@ Learn from others, but don’t copy blindly. Aligning your life with your inner 
 
 Work consciously and live fully.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [**Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)***
+-----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
