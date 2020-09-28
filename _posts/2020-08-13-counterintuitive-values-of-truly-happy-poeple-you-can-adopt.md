@@ -125,4 +125,4 @@ The transgression of these values only leads to empty highs, not permanent satis
 You don’t need to change your situation, only how you see it.
 
 ------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
