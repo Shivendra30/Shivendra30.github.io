@@ -186,4 +186,5 @@ Center yourself multiple times until you start to carry a sense of calmness thro
 
 Once you taste the inner joy and calmness, you’ll want to meditate more. And the more you meditate, the more you want to meditate.
 
-[**Join the early bird list](https://bit.ly/2X15HlT)** for my new book, Bend Reality: Timeless Tools to Shift the Illusion of Reality, Reinvent Yourself, and Master Life :)
+--------------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
