@@ -111,4 +111,5 @@ Don’t eat at least before lunch and see what happens. If hunger strikes drink 
 
 It will be one of the best lifestyle changes you ever make.
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
