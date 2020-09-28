@@ -134,4 +134,4 @@ We were able to write a book and build an email list which is hopefully the star
 I don’t know what will happen in the future. But what I do know is I’ll keep making mistakes and I’ll keep writing about them, hoping that you don’t make the same ones.
 
 ------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
