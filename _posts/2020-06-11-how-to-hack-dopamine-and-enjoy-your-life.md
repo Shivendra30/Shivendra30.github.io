@@ -271,3 +271,7 @@ If you realize and fix it now, it will serve you forever.
 *Brain Res Cogn Brain Res. 2002 Apr;13(2):255–9. Clinical Trial; Research Support, Non-U.S. Gov’t*www.ncbi.nlm.nih.gov](https://www.ncbi.nlm.nih.gov/pubmed/11958969)
 [**Meditation adapts the brain to respond better to feedback**
 *Participants in the study, a mixture of experienced, novice and non-meditators, were trained to select images…*www.surrey.ac.uk](https://www.surrey.ac.uk/news/meditation-adapts-brain-respond-better-feedback)
+
+--------------
+
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
