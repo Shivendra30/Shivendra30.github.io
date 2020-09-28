@@ -138,4 +138,5 @@ Start today — strip off the behaviors the distract you. Whether it’s social 
 
 Soon you’ll be amazed to see how far you’ve come. And when you do, let me know how it changed your life :)
 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+-------------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
