@@ -133,4 +133,4 @@ If you practice this enough and consistently, there will be nothing that anyone 
 Break out of the chain of slavery. Live freely.
 
 ----------------------- 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
