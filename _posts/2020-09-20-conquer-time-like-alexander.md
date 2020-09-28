@@ -217,5 +217,5 @@ Five minutes is all it takes to write down your tasks and worries. Once you put 
 
 Remember, if you’re too caught up in what’s happening around you like Darius, you won’t be able to zoom out and plan your strategy like Alexander.
 
----------------------
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+----------
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
