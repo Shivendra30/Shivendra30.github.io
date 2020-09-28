@@ -149,4 +149,4 @@ No company is dependent on one client. And you too are already an entrepreneur â
 Youâ€™re just a 4-week-notice away from being fired. Diversify and protect yourself. Now is the time.
 
 ------------------------------------------ 
-*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/emailcoursepd)*
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
