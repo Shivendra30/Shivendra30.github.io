@@ -179,4 +179,5 @@ These were the major lessons I learned from Ben. I hope you use one of them to i
 
 Let me know what you think down in the comments. Did I miss something?
 
-[**Join the early bird list](https://bit.ly/2X15HlT)** for my new book, Bend Reality: Timeless Tools to Shift the Illusion of Reality, Reinvent Yourself, and Master Life :)
+----------------      
+*Are you serious about becoming the best version of yourself? Get your free 5-day email course to [Master The Art Of Personal Transformation](https://bit.ly/maptcourse)*
