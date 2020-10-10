@@ -64,7 +64,7 @@ The Buddhists have a common practice of ‘walking meditation.’ They believe t
 Ever since the coronavirus pandemic has forced me to stay indoors, I’ve realized the importance of scheduling a daily walk. Even if I can’t block time to walk, I take almost all my calls walking in the park with bare feet.
 
 Dorothy Day first felt a strong presence of God in her life which nudged her to the path of sainthood. Indeed, my teachers advise slow movement through nature as a great way to bathe in the beauty and develop devotion for God.
-> # It’s fascinating how something as simple as moving your feet can be so enlightening.
+> It’s fascinating how something as simple as moving your feet can be so enlightening.
 
 It is not about burning calories or tracking your steps with a smartwatch. It’s about being present and consumed in the Now.
 
@@ -108,7 +108,7 @@ There’s one thing common amongst luminaries in diverse fields — solitude. Th
 Solitude is when you can hear your own voice. It’s difficult to hear your own voice in a myriad of other voices which are always louder than your own.
 
 The importance of solitude in my life wasn’t clear until a few months ago. As the world is spending a lot of time indoors in 2020, I too got the opportunity to be with my thoughts for a long time.
-> # To say the least, it has been the source of great ideas and valuable self-awareness through honest introspection.
+> To say the least, it has been the source of great ideas and valuable self-awareness through honest introspection.
 
 Though most people think otherwise, there’s a difference between loneliness and solitude. Loneliness is perceived isolation. Solitude is when you isolate yourself by choice — and this can be therapeutic.
 
