@@ -85,7 +85,7 @@ This only happens when you relax the body. Here’s how you do it.
 
 **Diaphragmatic Breathing**
 
-![breathing.com](https://cdn-images-1.medium.com/max/2000/0*Gcq5kQKiXIhBe23U)*breathing.com*
+![breathing.com](https://cdn-images-1.medium.com/max/2000/0*Gcq5kQKiXIhBe23U)
 
 We’ve forgotten how to breathe. It seems silly to say this until you realize it’s true.
 
@@ -107,7 +107,7 @@ With conscious effort, you can re-train yourself to use this abundant form of en
 
 ### Savasana (The Corpse Pose)
 
-![chopra.com](https://cdn-images-1.medium.com/max/2000/0*920Gopc8EBHlOcDM.jpg)*chopra.com*
+![chopra.com](https://cdn-images-1.medium.com/max/2000/0*920Gopc8EBHlOcDM.jpg)
 
 This one of the simplest but most effective Yoga asanas I’ve come across. To practice it, lie down on a flat surface, palms facing upwards.
 
@@ -133,7 +133,7 @@ You can continue for as long as you want. This posture is ideal to practice befo
 
 ### Cobra Pose
 
-![howlermag.com](https://cdn-images-1.medium.com/max/2000/0*79dPtdJVpsSeqtWW.jpg)*howlermag.com*
+![howlermag.com](https://cdn-images-1.medium.com/max/2000/0*79dPtdJVpsSeqtWW.jpg)
 
 Lie down facing the surface. Keep your palms turn downward beside your shoulders.
 
@@ -147,7 +147,7 @@ You can repeat this 3–5 times.
 
 ### Child Pose
 
-![yogaoutlet.com](https://cdn-images-1.medium.com/max/2000/0*ITJEVWBfcLysWvZC)*yogaoutlet.com*
+![yogaoutlet.com](https://cdn-images-1.medium.com/max/2000/0*ITJEVWBfcLysWvZC)
 
 Sit on your calves with your knees folded. Keep the toe of your right foot on the toe of your left foot.
 
