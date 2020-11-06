@@ -1,6 +1,6 @@
 ---
 layout: post
-title: How TO Actually Write Three or More Articles a Day
+title: How To Actually Write Three or More Articles a Day
 published: true
 ---
 
