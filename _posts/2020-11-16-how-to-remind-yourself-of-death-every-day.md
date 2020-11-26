@@ -4,6 +4,8 @@ published: true
 title: Why and How to Remind Yourself of Death Every Day
 ---
 
+![](https://miro.medium.com/max/1890/0*P4lAQYOC7h8dat6j)
+
 ### What we can learn from Bhutan’s dark secret to happiness
 
 Irritated with the lack of progress in my life a few months back, I wanted to get back on track. I’d not been meeting my friends for a long time. The next day one of my friends called me for some work and suggested we should go to the gym together.
