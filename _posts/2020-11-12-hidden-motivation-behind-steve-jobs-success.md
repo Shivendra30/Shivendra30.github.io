@@ -4,9 +4,10 @@ published: true
 title: Do You Know the Hidden Motivation Behind Steve Jobs’s Success?
 ---
 
-How Paramahansa Yogananda changed his life and thousands of others
-
 ![yogajournal.com](https://cdn-images-1.medium.com/max/2000/1*KTiQ6ZOlfuXkeTPZBXqdXg.jpeg)*yogajournal.com*
+
+
+How Paramahansa Yogananda changed his life and thousands of others
 
 A short time after Steve Jobs passed away, [Nabha Cosley’s](https://www.ananda.org/blog/steve-jobs-autobiography-yogi/) friend at [Crystal Clarity Publishers](https://www.crystalclarity.com/), received a phone call.
 
