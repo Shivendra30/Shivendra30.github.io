@@ -3,7 +3,7 @@ layout: post
 published: true
 title: Here are 9 Writing Mistakes I Never Made on Medium
 ---
-![](https://medium.com/illumination/here-are-9-writing-mistakes-i-never-made-on-medium-653c03ba2e7a)
+![](https://miro.medium.com/max/4800/1*kunSFXpkfJE3j3feVjWAHA.jpeg)
 
 ### Your life will be better if you avoid them too
 
