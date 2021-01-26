@@ -4,9 +4,6 @@ published: true
 title: Science Reveals How Spirituality Improves Your Mental Health (Even If You Don’t Believe)
 ---
 
-
-Even non-believers can benefit from spirituality.
-
 ![[Source](https://www.behance.net/gallery/75009473/Utopia?tracking_source=search_projects_recommended%7CPrayer)](https://cdn-images-1.medium.com/max/2200/1*6YIvKH11e8h0Y5AAfYuXFg.jpeg)*[Source](https://www.behance.net/gallery/75009473/Utopia?tracking_source=search_projects_recommended%7CPrayer)*
 > “If God did not exist, it would be necessary to invent Him.”
 > — Voltaire
