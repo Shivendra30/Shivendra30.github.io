@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: 6 Reasons Why You Find Meditation Harder Than It Is
+---
 
-# 6 Reasons Why You Find Meditation Harder Than It Is
-
-6 Reasons Why You Find Meditation Harder Than It Is
+![](https://miro.medium.com/max/3900/0*b3YzvmZ_WkzTJIYy)
 
 ### These simple mindset shifts prevented me from shunning meditation altogether.
 
@@ -18,8 +21,8 @@ There are many reasons why meditation can appear difficult, listening to the noi
 Here are some of the main excuses people refuse to give meditation a try. By knowing the truths behind these myths, you can set yourself up for success.
 
 ## You’re Trying to Stop Thoughts to Calm the Mind
-> # “The mind is more difficult to tame than the mighty winds.”
-> # — Arjuna, The Bhagavad Gita
+> “The mind is more difficult to tame than the mighty winds.”
+> — Arjuna, The Bhagavad Gita
 
 Like most first-time meditators, I used to try calming the mind *vigorously*. That’s an oxymoron in itself if you know what true meditation is. In his book [Secrets of Meditation](https://www.amazon.com/Secrets-Meditation-Inner-Peace-Kriyananda/dp/1565893085), Swami Kriyananda writes,
 > “The secret of meditation is to send any vagrant thoughts in your mind soaring, like little balloons, upward in the skies of Infinity until they disappear like in the blue distance.”
@@ -35,8 +38,8 @@ After meditating every day for almost 18 months, I still have lousy sessions whe
 As long as you keep going, results will show up. Meditation, like life, will also have periods of ‘dryness’. Accept them and work with them calmly. Fighting the mind only creates tension, learn to work with it.
 
 ## You Think There’s No Time
-> # “If you’re busy, meditate for 15 minutes. If you’re too busy, meditate for 1 hour.”
-> # — (A quote that floats a lot in Zen circles)
+> “If you’re busy, meditate for 15 minutes. If you’re too busy, meditate for 1 hour.”
+> — (A quote that floats a lot in Zen circles)
 
 I firmly believe that if you can’t find the time to do something, it’s not a priority for you. Don’t blame it on others, hold yourself accountable. You’re not able to make time for it, and now you have to fix it.
 
@@ -99,8 +102,8 @@ A recent [study](https://journals.sagepub.com/doi/abs/10.1177/0956797612459659) 
 It’s not hard to see then, that the benefits of meditation not only help you crack standardized tests but also perform cognitively better in your professional and personal lives.
 
 ## You Think You’re Not Good at It
-> # “There are only two mistakes one can make along the road to truth; not going all the way, and not starting.”
-> # — Buddha
+> “There are only two mistakes one can make along the road to truth; not going all the way, and not starting.”
+> — Buddha
 
 You can’t suck at meditation. No one can. The reason people feel they’re not doing well, is they think meditation is about emptying the mind or the cessation of thoughts. Though that may be the goal of meditation, it doesn’t mean that you’re bad if you’re not able to achieve it.
 
@@ -128,4 +131,4 @@ Here are the reasons why you’re finding meditation harder than it is:
 
 These simple mindset shifts prevented me from shunning meditation altogether. I hope they do the same for you.
 
-### *Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+### *Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
