@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: How to Use Mindful Productivity to Achieve More with Less Stress
+---
 
-# How to Use Mindful Productivity to Achieve More with Less Stress
-
-How to Use Mindful Productivity to Achieve More with Less Stress
+![](https://miro.medium.com/max/3240/1*qBgsiSPwYVIZH1gV3f5GRA.jpeg)
 
 ### Mindfulness can be an important productivity tool for you.
 
@@ -107,7 +110,7 @@ The only alternative that works is using the philosophy of the ONE Thing.
 Originally given by Gary Keller in his [book](https://www.amazon.com/ONE-Thing-Surprisingly-Extraordinary-Results/dp/1885167776) by the same name, the ONE Thing is the thing which, if done, will make everything easier or unnecessary.
 
 That’s the focusing question:
-> # *“What’s the one thing you can do, such that by doing it, everything else will be easier or unnecessary?”*
+> *“What’s the one thing you can do, such that by doing it, everything else will be easier or unnecessary?”*
 
 Ask yourself this question every morning. Think hard about where you’re putting your energy. Put it only in tasks that give you the greatest return on time invested.
 
@@ -156,7 +159,7 @@ Slowing down consciously can do wonders for your awareness. Just a while ago, I 
 I got the chance to look at the trees on the sidewalk and observe people walking. I even saw what brand of earphones a runner was using. All this is trivial, I agree. But it makes much more sense than rushing from one moment to another.
 
 You can apply plodding to anything — eating, walking, talking, and so on. When you do so, try to also feel the sensations of that activity. Just as Thich Nhat Hanh says:
-> # “Walk as if you’re kissing the earth with your feet.”
+> “Walk as if you’re kissing the earth with your feet.”
 
 ### Set clear boundaries.
 
@@ -202,4 +205,4 @@ To sum up, here are the things you can do to be more mindful and productive at t
 
 * **Meditate: **It’s the only way to deepen your awareness much beyond the micro-mindfulness moments can give you.
 
-*Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+*Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
