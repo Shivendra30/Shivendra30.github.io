@@ -1,11 +1,16 @@
+---
+layout: post
+published: true
+title: The Answer to the Hard Problem Of Consciousness
+---
 
-# The Answer to the Hard Problem Of Consciousness
+![](https://miro.medium.com/max/2000/1*hAFenznU8FDvQnU_ODlITw.jpeg)
 
 Galileo made a huge error — Consciousness pervades the universe.
 
 ![[Source](https://www.behance.net/gallery/111068463/Insight)](https://cdn-images-1.medium.com/max/2800/1*hAFenznU8FDvQnU_ODlITw.jpeg)*[Source](https://www.behance.net/gallery/111068463/Insight)*
-> # “You are the Universe, expressing itself as a human for a little while.”
-> # — Eckhart Tolle
+> “You are the Universe, expressing itself as a human for a little while.”
+> — Eckhart Tolle
 
 There’s one thing we all can agree on. **If you’re reading this, you’re conscious. **But have you ever cared to ask yourself:
 
@@ -46,8 +51,8 @@ You see, despite all the progress we’ve made in understanding the brain, we st
 This problem is broadly acknowledged. **But the issue is many people think we just need to keep pushing on our standard methods of investigating the brain until one day, we find the answer to this problem.** Yet, no matter how much we try, conventional scientific methods may never be able to answer these questions.
 
 ## Galileo’s Error
-> # “The laws of nature are written by the hand of God in the language of mathematics.”
-> # — Galileo
+>  “The laws of nature are written by the hand of God in the language of mathematics.”
+> — Galileo
 
 The key to all this mess lies in the roots of the scientific revolution. A key moment in that revolution was Galileo’s declaration that mathematics was to be the language of the new science. This meant that sciences were to have a quantitative vocabulary.
 
@@ -58,7 +63,7 @@ Take Einstein for example. He wanted to explain God in an equation, on a piece o
 And so Galileo decided that we have to [**put consciousness outside the domain of science](https://blogs.scientificamerican.com/observations/galileos-big-mistake/)! Once we do that everything else can be explained in mathematical terms.** (Quite convenient, I have to say).
 
 Thus, one of the reasons modern science has been successful is because it decided to put consciousness out of the picture. Phillip says,
-> # “If Galileo were to time travel to the present day and hear about this problem of explaining consciousness in the terms of physical science, he’d say, ‘Of course, you can’t do that. I designed physical science to deal with quantities, not qualities!’”
+> “If Galileo were to time travel to the present day and hear about this problem of explaining consciousness in the terms of physical science, he’d say, ‘Of course, you can’t do that. I designed physical science to deal with quantities, not qualities!’”
 
 In a nutshell, science has largely been unable to solve this problem because [matter can be seen with the eyes, but consciousness can’t. It’s an internal experience](https://medium.com/illumination/why-consciousness-is-the-ultimate-frontier-of-human-evolution-eb1c16a50906).
 
@@ -67,8 +72,8 @@ Physics, which many would assume should be able to solve this problem, tells us 
 The proposal of panpsychism is to fill that hole with Consciousness. What this enables us to do, is to elegantly integrate consciousness into our scientific worldview, “of marrying what we know about ourselves from the inside and what science tells us about matter from the outside,” says Phillip.
 
 ## Why People Have Difficulty Believing This
-> # “Consciousness cannot be accounted for in physical terms. For consciousness is absolutely fundamental. It cannot be accounted for in terms of anything else.”
-> # ― Erwin Schrödinger
+> “Consciousness cannot be accounted for in physical terms. For consciousness is absolutely fundamental. It cannot be accounted for in terms of anything else.”
+> ― Erwin Schrödinger
 
 I know what you might be thinking “This is just crazy!” I can empathize. I used to think so too. That is until I had a taste of it.
 
@@ -85,8 +90,8 @@ At this point, your head may be spinning and all you can think of is putting thi
 But wait for a second and think about the best scientific discoveries — Einstein’s relativity, and Darwin’s survival of the fittest. These all were considered crazy. In many cases, the people who made such theories spent their lives convincing others. Doesn’t it then make sense to at least welcome panpsychism and think about it?
 
 ## Everything Is Consciousness
-> # Thus one should know oneself to be of the nature of Existence-Consciousness-Bliss[Sat-Chit-Ananda].
-> # — Adi Shankara
+>  Thus one should know oneself to be of the nature of Existence-Consciousness-Bliss[Sat-Chit-Ananda].
+>  — Adi Shankara
 
 Not a long time ago, people believed that the material reality is all that exists. Then came the understanding — which is largely accepted today — that matter itself is nothing but condensed energy.
 
@@ -105,8 +110,8 @@ A research [article](https://www.ingentaconnect.com/content/imp/jcs/1999/0000000
 Wolfgang Fasching further states in his [research](https://link.springer.com/article/10.1007/s11097-008-9090-6), “this practice can be understood as a special means of becoming aware of consciousness itself as such.” “In meditation, I would suggest, one ceases to be actively occupied with the objects of consciousness in order to become conscious of consciousness itself (which usually remains “hidden” behind what it is conscious of),” he adds.
 
 Think about it. You can only find the Core Reality behind the fringe of your mind, once everything comes to a halt — that is, everything that makes you human and brings you into matter-consciousness.
-> # If Descartes said, “I think, therefore I am,” the yogis would say, “When I stop thinking, then I really am.”
-> # — Dada Gunamuktananda
+>  If Descartes said, “I think, therefore I am,” the yogis would say, “When I stop thinking, then I really am.”
+>  — Dada Gunamuktananda
 
 Just as with the development of technology, the world has become a smaller place, with the development of meditation ability and “technology” the Universe can become a smaller place. And I hope soon, scientists will soon accept this “inner” science as valid as the outer science we believe in. Because without it, nothing in the world would ever make sense.
 
@@ -135,6 +140,3 @@ This is Pure Consciousness. I can’t define it. You can’t define it. It just 
 
 But you don’t have to wait for them! Solve this riddle every day from the comfort of your home. It’s the key to all life, it’s the key to the Universe. And the key is in your hands.
 
-## Mind Cafe’s Reset Your Mind: A Free 10-Day Email Course
-
-We’re offering a free course to all of our new subscribers as a thank you for your continued support. When you sign up using [**this link](https://mindcafe.ck.page/fba9da7818)**, we’ll send you tips on how to boost mental clarity and focus every two days.
