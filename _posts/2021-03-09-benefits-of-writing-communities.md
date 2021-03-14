@@ -1,9 +1,14 @@
+---
+layout: post
+published: true
+title: Why Writing Communities Can Skyrocket Your Growth
+---
 
-# Why Writing Communities Can Skyrocket Your Growth
-
-The simple trick to succeeding in a crowded world
 
 ![Photo by [Dylan Gillis](https://unsplash.com/@dylandgillis?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)](https://cdn-images-1.medium.com/max/10944/0*fF7C9At2UeTEpbKy)*Photo by [Dylan Gillis](https://unsplash.com/@dylandgillis?utm_source=medium&utm_medium=referral) on [Unsplash](https://unsplash.com?utm_source=medium&utm_medium=referral)*
+
+### The simple trick to succeeding in a crowded world
+
 
 For the longest time, I was alone on Medium. I was an aspiring writer who looked at famous writers in awe. I wondered if I could be at that level. To be honest, it was not a good experience to see your posts get a couple hundred views and then see someone getting thousands of views for breakfast.
 
