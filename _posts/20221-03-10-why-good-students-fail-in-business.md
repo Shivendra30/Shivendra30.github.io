@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: How Being a Good Student Harmed My Entrepreneurial Success
+---
 
-# How Being a Good Student Harmed My Entrepreneurial Success
-
-How Being a Good Student Harmed My Entrepreneurial Success
+![](https://miro.medium.com/max/3240/1*PWaoKCxC_Zaaia18JMKYqw.jpeg)
 
 ### The “A-student” mindset you need to change to make it as an entrepreneur
 
@@ -20,7 +23,7 @@ When I started again the next time, I applied all those lessons and was able to 
 And so after spending a couple of years in business, it was clear to me why classroom success doesn’t lead to business success.
 
 ## Beginner’s Mind is Lost In The Sea of Intelligence
-> # “I know that I know nothing.” — Socrates
+> “I know that I know nothing.” — Socrates
 
 A-students have learned a lot in their short lives. Most of it may be useless, but they did spend hours and years learning it.
 
