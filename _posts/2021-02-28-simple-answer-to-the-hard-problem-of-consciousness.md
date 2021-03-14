@@ -4,11 +4,11 @@ published: true
 title: The Answer to the Hard Problem Of Consciousness
 ---
 
-![](https://miro.medium.com/max/2000/1*hAFenznU8FDvQnU_ODlITw.jpeg)
+![[Source](https://www.behance.net/gallery/111068463/Insight)](https://cdn-images-1.medium.com/max/2800/1*hAFenznU8FDvQnU_ODlITw.jpeg)*[Source](https://www.behance.net/gallery/111068463/Insight)*
 
 Galileo made a huge error — Consciousness pervades the universe.
 
-![[Source](https://www.behance.net/gallery/111068463/Insight)](https://cdn-images-1.medium.com/max/2800/1*hAFenznU8FDvQnU_ODlITw.jpeg)*[Source](https://www.behance.net/gallery/111068463/Insight)*
+
 > “You are the Universe, expressing itself as a human for a little while.”
 > — Eckhart Tolle
 
