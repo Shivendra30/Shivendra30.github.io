@@ -1,10 +1,14 @@
-
-# How to Control Your Desires and Live a Life of Self-Control
-
-Learn to control the desires that draw the happiness out of you.
+---
+layout: post
+published: true
+title: How to Control Your Desires and Live a Life of Self-Control
+---
 
 ![Illustration by Sílvia Leo Silva on [Behance](https://www.behance.net/leolimao)](https://cdn-images-1.medium.com/max/2800/0*gjAqN-flz8RsWG3v.jpg)*Illustration by Sílvia Leo Silva on [Behance](https://www.behance.net/leolimao)*
-> # “What is it that draws me, even against my will, into delusion? What is that force?”
+### Learn to control the desires that draw the happiness out of you.
+
+
+> “What is it that draws me, even against my will, into delusion? What is that force?”
 
 …Arjuna desperately asks Krishna in the Bhagavad Gita. That, in fact, is a question that we all would like to know the answer to. After all, we all are good human beings that want to do well for ourselves and others.
 
@@ -124,8 +128,8 @@ Instead of thinking about having the left-over cake in your refrigerator, focus 
 The more you can train your concentration, the easier it becomes to tackle desires. For concentration is nothing but being able to focus on something one-pointedly. Once you have the ability to do that, you can do wonders in a world of distracted zombies (let’s be honest!)
 
 ## Raise Your Consciousness
-> # He who forsakes desires for lesser enjoyments, unattached to sense objects, devoid of the consciousness of ‘me and mine,’ receives the lasting joy of God-peace
-> # — Krishna, Bhagvad Gita
+> He who forsakes desires for lesser enjoyments, unattached to sense objects, devoid of the consciousness of ‘me and mine,’ receives the lasting joy of God-peace
+> — Krishna, Bhagvad Gita
 
 Raising your consciousness is the surest way to eliminate desires. Desires keep our energy focused on delusion. By desiring something we say, “I’ll be happy when I have X.” Well if you’re not happy in the process, how are you going to get whatever you want? And even when you get there, you’ll find that the happiness gained is transient.
 
@@ -158,8 +162,5 @@ Here are all the different ways you can use to control your desires:
 1. **Raise your consciousness** to find happiness within therefore making desires less enticing
 
 I’ll end with a quote by [Swami Sri Yukteswar](https://en.wikipedia.org/wiki/Swami_Sri_Yukteswar_Giri) in [Autobiography of a Yogi](https://www.goodreads.com/book/show/639864.Autobiography_of_a_Yogi):
-> # “The forceful activating impulse of wrong desire is the greatest enemy of the happiness of man. Roam in the world as a lion of self-control, see that the frogs of weakness don’t kick you around.”
+> “The forceful activating impulse of wrong desire is the greatest enemy of the happiness of man. Roam in the world as a lion of self-control, see that the frogs of weakness don’t kick you around.”
 
-## Mind Cafe’s Reset Your Mind: A Free 10-Day Email Course
-
-We’re offering a free course to all of our new subscribers as a thank you for your continued support. When you sign up using [**this link](https://mindcafe.ck.page/fba9da7818)**, we’ll send you tips on how to boost mental clarity and focus every two days.
