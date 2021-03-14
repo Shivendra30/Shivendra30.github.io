@@ -1,11 +1,15 @@
+---
+layout: post
+published: true
+title: Why You Need Fight for Your Energy and Consciousness to Thrive
+---
 
-# Why You Need Fight for Your Energy and Consciousness to Thrive
+![Photo by Noah Buscher on Unsplash](https://cdn-images-1.medium.com/max/6000/1*1Ll3ui5YSElUMbVVYKVqMw.jpeg)*Photo by Noah Buscher on Unsplash*
 
 Ignore your energy on your own peril
 
-![Photo by Noah Buscher on Unsplash](https://cdn-images-1.medium.com/max/6000/1*1Ll3ui5YSElUMbVVYKVqMw.jpeg)*Photo by Noah Buscher on Unsplash*
-> # “If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.”
-> # ― Nikola Tesla
+> “If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.”
+> ― Nikola Tesla
 
 As I drove back home that night, I felt drained. No, I wasn’t tired, I was drained of mental energy and consciousness. As a result, I took wrong turns, ended up in dark alleys, and scratched my car at various places.
 
@@ -42,7 +46,7 @@ On the other hand, people who’re sad, literally say “I’m feeling down.” 
 Ergo, every emotion is caused by a movement of energy in our spine and nothing else.
 
 And so, we can say that “beauty lies in the *reaction* of the beholder.” Or I’ll do you one better:
-> # “Beauty lies in the spine of the beholder.”
+> “Beauty lies in the spine of the beholder.”
 
 More energy helps you have better relationships, produce more and better work, be there for your family even after a long day, view the world with the glass of optimism, and live life with courage.
 
@@ -53,8 +57,8 @@ Some activities increase your energy and others decrease your energy. The choice
 Here’s how you can do that.
 
 ## Keep It Simple, Stupid
-> # “Simple can be harder than complex: You have to work hard to get your thinking clean to make it simple. But it’s worth it in the end because once you get there, you can move mountains.”
-> # ― Steve Jobs
+> “Simple can be harder than complex: You have to work hard to get your thinking clean to make it simple. But it’s worth it in the end because once you get there, you can move mountains.”
+> ― Steve Jobs
 
 Life throws a lot of decisions at you. The way to deal with them is to automate them.
 
@@ -77,8 +81,8 @@ It’s all in the routine — the routine is *religious *because it sets the fou
 Think about how you can simplify your life in similar ways.
 
 ## Give Up Anger and Hatred
-> # “Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.”
-> # ― Maya Angelou
+> “Bitterness is like cancer. It eats upon the host. But anger is like fire. It burns it all clean.”
+> ― Maya Angelou
 
 Notice how you feel after shouting at someone or writing a hateful comment on a post.
 
@@ -97,9 +101,9 @@ You could probably shout at me and I would happily continue my work 5 minutes la
 Nothing should touch your energy. Burn the enemies of anger and hatred with love, compassion, and calm acceptance.
 
 ## Cultivate Silence
-> # “Out beyond ideas of wrongdoing and rightdoing there is a field. I’ll meet you there.
-> # When the soul lies down in that grass the world is too full to talk about.”
-> # ― Rumi
+> “Out beyond ideas of wrongdoing and rightdoing there is a field. I’ll meet you there.
+> When the soul lies down in that grass the world is too full to talk about.”
+> ― Rumi
 
 Listen to the silence. Bathe in it. Silence has the power to heal the deepest wounds.
 
@@ -120,8 +124,8 @@ As a starting point, for every minute you spend with others, spend around 10% of
 Only in solitude can you find a perennial source of energy that is with you at all times. You can draw as much as you want from this source and it will never end.
 
 ## Let Go of Desires
-> # “To want is to have a weakness.”
-> # ― Margaret Atwood
+> “To want is to have a weakness.”
+> ― Margaret Atwood
 
 Desires are the biggest suckers of energy.
 
@@ -142,9 +146,9 @@ My life changed when I did this for myself. As soon as I realized that my spirit
 These turning points in my life give me more energy than ever. You can also find such turning points if you introspect and curb your desires.
 
 ## Don’t Work — Do This Instead
-> # “At the end of life we will not be judged by how many diplomas we have received, how much money we have made, how many great things we have done.
-> # We will be judged by “I was hungry, and you gave me something to eat, I was naked and you clothed me. I was homeless, and you took me in.”
-> # ― Mother Teresa
+> “At the end of life we will not be judged by how many diplomas we have received, how much money we have made, how many great things we have done.
+> We will be judged by “I was hungry, and you gave me something to eat, I was naked and you clothed me. I was homeless, and you took me in.”
+> ― Mother Teresa
 
 Let me tell you a short story.
 
@@ -175,8 +179,8 @@ When you serve others, you experience the joy that is not available to those who
 That joy and inner peace is then the fuel that keeps you going. You don’t get exhausted easily when you serve. But when you think only of yourself, you cap your potential in vain.
 
 ## Understand the ‘Backwards Law’
-> # “When you try to stay on the surface of the water, you sink; but when you try to sink, you float.”
-> # — Alan Watts
+> “When you try to stay on the surface of the water, you sink; but when you try to sink, you float.”
+> — Alan Watts
 
 Life is ironic, even backward. The more you run after something, the more it gets away. The moment you stop running, things finally start to fall in place.
 
@@ -213,4 +217,4 @@ Quit complaining. Quit gossiping. Quit thinking about how hard life is. Work ins
 
 While the world is stuck in the material world, why don’t you withdraw into your inner world and unlock your potential? Try it and see your life change.
 
-*Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+*Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
