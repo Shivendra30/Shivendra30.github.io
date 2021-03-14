@@ -4,6 +4,7 @@ layout: post
 published: true
 title: How Speaking Softly Can Help You Create More Impact
 ---
+
 ![](https://miro.medium.com/max/3240/1*30idZ7FYI8izCwlgkn-6Cg.jpeg)
 
 ### How to exist in the world of loud noises and still thrive
