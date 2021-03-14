@@ -1,9 +1,13 @@
+---
+layout: post
+published: true
+title: 6 Science-Backed Ways to Overcome the ‘Afternoon Slump’
+---
 
-# 6 Science-Backed Ways to Overcome the ‘Afternoon Slump’
+![Photo by Katya Austin on Unsplash](https://cdn-images-1.medium.com/max/10368/1*FPo_kwWhLFWaLcynyvnb_g.jpeg)*Photo by Katya Austin on Unsplash*
 
 Never feel tired at 3pm again.
 
-![Photo by Katya Austin on Unsplash](https://cdn-images-1.medium.com/max/10368/1*FPo_kwWhLFWaLcynyvnb_g.jpeg)*Photo by Katya Austin on Unsplash*
 
 ## All Hours Are Not Created Equal
 
@@ -122,6 +126,3 @@ Here are the six different ways you can tackle the afternoon slump the next time
 
 1. **Listen to music**: Music can give you the little extra boost to sail through your cognitive lulls
 
-## Mind Cafe’s Reset Your Mind: A Free 10-Day Email Course
-
-We’re offering a free course to all of our new subscribers as a thank you for your continued support. When you sign up using [**this link](https://mindcafe.ck.page/fba9da7818)**, we’ll send you tips on how to boost mental clarity and focus every two days.
