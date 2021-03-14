@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: Captivating Quotes by ‘Shunya’ That Will Dispel Your Ignorance
+---
 
-# Captivating Quotes by ‘Shunya’ That Will Dispel Your Ignorance
-
-Captivating Quotes by ‘Shunya’ That Will Dispel Your Ignorance
+![](https://miro.medium.com/max/2800/1*60H4DGQMNSVwDh8OIFnSzg.jpeg)
 
 ### And make you feel like you’ve just meditated
 
@@ -158,4 +161,4 @@ All of these quotes are ones that you could meditate on for hours. You can keep 
 
 That’s what makes them so intriguing for me. And I hope they pushed you a little bit more to uncover the mysteries of this Universe.
 
-### *Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+### *Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
