@@ -1,7 +1,9 @@
-
-# Why Religion Fails to Give the Answers We Crave
-
-Why Religion Fails to Give the Answers We Crave
+---
+layout: post
+published: true
+title: Why Religion Fails to Give the Answers We Crave
+---
+![](https://miro.medium.com/max/2800/1*Wb3rlTedM8abXpL6JHv4jQ.jpeg)
 
 ### And how spirituality can help
 
@@ -119,4 +121,4 @@ Hand in hand, both will lead us further towards our journey that will be differe
 
 The knowledge of the difference between the two should then empower us to choose our path carefully and ensure we avoid detours in our pilgrimage towards salvation.
 
-*Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+*Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
