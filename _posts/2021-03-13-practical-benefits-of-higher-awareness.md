@@ -1,10 +1,13 @@
+---
+layout: post
+published: true
+title: 11 Lesser-Known Practical Benefits of Having Higher Awareness
+---
 
-# 11 Lesser-Known Practical Benefits of Having Higher Awareness
-
-11 Lesser-Known Practical Benefits of Having Higher Awareness
+![](https://miro.medium.com/max/3240/1*8ICHairc3JcXpjJjbM_bDA.jpeg)
 
 ### How your life changes when your awareness rises
-> # “Is there a state of awareness meditators experience that non-meditators don’t have access to?”
+> “Is there a state of awareness meditators experience that non-meditators don’t have access to?”
 
 As we discussed more on how one can establish a regular meditation practice and the benefits that come along with it, my friend asked me the above question that made me pause for a moment.
 
@@ -21,8 +24,8 @@ While the spiritual changes in your consciousness and life can often be too subt
 There are some serious benefits that you can gain in your pursuit to raise your consciousness and awareness. I didn’t start out with a goal to work on consciousness — I didn’t even know what it means. But the changes I’ve gone through can only be explained by a rise in awareness. Here are some of the things that I’ve seen which make higher awareness more attractive.
 
 ## An Enhanced Sensory Experience
-> # “We have many ways of creating our realities based on the different ways we perceive.”
-> # ― Zamm Zamudio
+> “We have many ways of creating our realities based on the different ways we perceive.”
+> ― Zamm Zamudio
 
 Reality is only what you perceive. The occurrences in your life are objective, it’s only your perception that gives them life and turns them into an experience. Perception is reality.
 
