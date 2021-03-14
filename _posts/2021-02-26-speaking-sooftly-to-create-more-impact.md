@@ -1,7 +1,10 @@
 
-# How Speaking Softly Can Help You Create More Impact
-
-How Speaking Softly Can Help You Create More Impact
+---
+layout: post
+published: true
+title: How Speaking Softly Can Help You Create More Impact
+---
+![](https://miro.medium.com/max/3240/1*30idZ7FYI8izCwlgkn-6Cg.jpeg)
 
 ### How to exist in the world of loud noises and still thrive
 
@@ -72,8 +75,8 @@ Don’t think people can’t pick up on these cues. Humans are really good at he
 By lowering your voice, you chill everyone out. There’s no need to raise your voice to make a point.
 
 ## You Get the Spotlight
-> # “When I run after what I think I want, my days are a furnace of stress and anxiety; if I sit in my own place of patience, what I need flows to me, and without pain.”
-> # — Rumi
+> “When I run after what I think I want, my days are a furnace of stress and anxiety; if I sit in my own place of patience, what I need flows to me, and without pain.”
+> — Rumi
 
 It’s counterintuitive but true. Soft-spoken people try the least to win others’ attention. But end up getting it anyway.
 
