@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: The Fundamentals of Yoga and How They Fit into Your Life
+---
 
-# The Fundamentals of Yoga and How They Fit into Your Life
-
-The Fundamentals of Yoga and How They Fit into Your Life
+![](https://miro.medium.com/max/3840/1*xboU_sZHAuDhKy75nhzrgQ.jpeg)
 
 ### Yoga is the science of self-realization.
 
@@ -18,7 +21,7 @@ Shiva or Adiyogi (the first yogi) taught the principles of yoga to seven sages �
 Before 400CE, Patanjali combined these teachings into his “Yoga Sutras.” It contains 196 Sutras, which defined yoga as having eight parts. It is therefore referred to as the “eight-limbed” path of yoga.
 
 Asana (posture), is just one of those eight paths. In fact, the purpose of asana is to help the yogi sit comfortably for meditation. And that’s it.
-> # What people are now using only to lose weight was actually meant as a preparation to achieve a higher state of awareness.
+> What people are now using only to lose weight was actually meant as a preparation to achieve a higher state of awareness.
 
 I’m not saying that looking at yoga from the lens of physical fitness is wrong, it’s rather limited. And it creates a false conception in the mind of students who learn it this way.
 
@@ -71,7 +74,7 @@ The higher the prana, the better you feel — mentally, emotionally, physically 
 Finally, know one thing — as your spiritual awareness deepens, you’ll find yourself shifting towards a vegetarian diet automatically. You’ll no longer crave the excitement that comes from rajasic and tamasic foods. It’s a subtle change of energy that you may not feel now.
 
 ## Calming the Vortices of Feeling
-> # “Yogas-chitta-vritti-nirodha-” Yoga Sutra 1.2.
+> “Yogas-chitta-vritti-nirodha-” Yoga Sutra 1.2.
 
 This is Patanjali’s definition of yoga. It means the goal of yoga is to calm the vortices of feeling. Chitta means the feeling side of the heart/mind, Vritti means a whirlpool or a vortex, and Nirodha means cessation.
 
@@ -189,4 +192,4 @@ These were a few basic insights that are simple to learn but are the fundamental
 
 Yoga is the science of self-realization, of enlightenment, using which our soul can trace its path back to its origin, to pure bliss.
 
-### *Struggling to meditate? Get my free 7-day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+### *Struggling to meditate? Get my free 7-day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
