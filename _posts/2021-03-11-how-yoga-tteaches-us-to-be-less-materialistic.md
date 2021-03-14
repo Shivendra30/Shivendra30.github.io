@@ -1,13 +1,16 @@
-
-# How Yoga Teaches Us to Simplify Our Lives and Be Less Materialistic
-
-Propel yourself on the path of minimalism with these yogic principles.
+---
+layout: post
+published: true
+title: How Yoga Teaches Us to Simplify Our Lives and Be Less Materialistic
+---
 
 ![Photo by Bodhio Foundation from Pexels](https://cdn-images-1.medium.com/max/10944/1*-c5rJjt-AzAzGUhzMygGHg.jpeg)*Photo by Bodhio Foundation from Pexels*
 
+Propel yourself on the path of minimalism with these yogic principles.
+
 ## The Desire for Wealth Is the Source of Unhappiness
-> # “It is not life and wealth and power that enslave men, but the cleaving to life and wealth and power.”
-> # — Buddha
+> “It is not life and wealth and power that enslave men, but the cleaving to life and wealth and power.”
+> — Buddha
 
 One of the major side-effects of my yoga and meditation practice has been a reduction in the amount of stuff I own. In fact, I don’t feel attracted to most things that I thought will make me happy — better shoes, a nicer pen (back in high school), earphones, jacket, etc. My appetite for “success” itself has gone down. I’m talking about the traditional definition of success that we’re fed by society — high-paying job/business, nice car, home, “high net-worth” connections, and so on.
 
@@ -58,7 +61,7 @@ I too try to focus on what I’ve gained:
 Life is much better if you focus on the positive. Because what you focus on, grows — remember that the next time you find yourself focusing on the negativity in your life.
 
 ## The Central Keyword in Yoga
-> # “Everything should be made as simple as possible, but no simpler.” — Einstein
+> “Everything should be made as simple as possible, but no simpler.” — Einstein
 
 One of the core principles of yoga is “**moderation**.” Unlike a lot of philosophies, yoga doesn’t emphasize extremes. Whether it’s about food, or habits, going to the extreme only creates more attachment.
 
@@ -105,4 +108,4 @@ Happiness can be found easily (probably only) in simplicity. And while simplicit
 
 So let’s take a new look at minimalism and use the principles of yoga, like aparigraha, to quench our longing for happiness.
 
-*Struggling to meditate? Get your free 7 Day email course —[** Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+*Struggling to meditate? Get your free 7 Day email course —[ Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
