@@ -1,9 +1,12 @@
-
-# The Effective Life Lessons I Learned While Growing My Hair Long
-
-Inspiration comes from the most unlikely of places.
+---
+layout: post
+published: true
+title: The Effective Life Lessons I Learned While Growing My Hair Long
+---
 
 ![Photo by [Nicolle Kreisch](https://www.pexels.com/@nicolle-kreisch-1366888?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/man-sitting-inside-vehicle-3267196/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)](https://cdn-images-1.medium.com/max/9216/1*ugaxRbewgET2zoZHH6w3hA.jpeg)*Photo by [Nicolle Kreisch](https://www.pexels.com/@nicolle-kreisch-1366888?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/man-sitting-inside-vehicle-3267196/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)*
+
+Inspiration comes from the most unlikely of places.
 
 ## The Road to Long Hair
 
