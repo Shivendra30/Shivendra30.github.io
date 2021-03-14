@@ -1,7 +1,10 @@
+---
+layout: post
+published: true
+title: How to Talk About Your Spiritual Growth with Others
+---
 
-# How to Talk About Your Spiritual Growth with Others
-
-How to Talk About Your Spiritual Growth with Others
+![](https://miro.medium.com/max/3240/1*I61cs07oZCYv0y_KO5YyGA.png)
 
 ### Without hurting your progress
 
@@ -26,8 +29,8 @@ In some cases, a spiritual change can seem like a rebirth to most people. If a p
 So how do you navigate these changes in your life? I don’t have all the answers, but I do have some suggestions.
 
 ## Decide If You Really Want to Talk About It
-> # “Give not that which is holy unto the dogs, neither cast ye your pearls before swine, lest they trample them under their feet, and turn again and rend you.”
-> # — Matthew (7:6)
+> “Give not that which is holy unto the dogs, neither cast ye your pearls before swine, lest they trample them under their feet, and turn again and rend you.”
+> — Matthew (7:6)
 
 It’s the nature of joy to share itself.
 
@@ -80,8 +83,8 @@ Once you gain that confidence, you can be relatively sure of talking with ‘wor
 Ergo, if you’re not at that point, don’t share too much outside your spiritual community.
 
 ## Be Wary of Pride
-> # “The seeker after Truth should be humbler than dust. The world crushes the dust under its feet but the seeker after Truth should be so humble that even the dust would crush him/her.”
-> # — Gandhi
+> “The seeker after Truth should be humbler than dust. The world crushes the dust under its feet but the seeker after Truth should be so humble that even the dust would crush him/her.”
+> — Gandhi
 
 Spiritual pride is one of the worst pitfalls on the path to greater awareness.
 
@@ -143,4 +146,4 @@ It’s not about how long you meditate or how early you get up. It’s about how
 
 That’s the time to plant the seed of inspiration in their minds. Tell them that whatever peace comes to you is a direct result of your practices. If they’re meant to do it, they will. If not, well you can’t do anything.
 
-*Struggling to meditate? Get your free 7 Day email course — [**Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)***
+*Struggling to meditate? Get your free 7 Day email course — [Meditation 101: How to Start Meditating](http://bit.ly/meditation101-course)*
